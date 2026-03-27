@@ -1,1 +1,0 @@
-# -Group-Activity-Laboratory-Exercise-6
